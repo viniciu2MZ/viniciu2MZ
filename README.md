@@ -1,7 +1,9 @@
-#praise the sun 
+## praise the sun 
 
 sunlight or sun is amazing
 
+### meu contato 
+**discord gatos140
 ![](https://media.tenor.com/QTbcrC893SIAAAAi/solaire.gif)
 <!--
 **viniciu2MZ/viniciu2MZ** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
