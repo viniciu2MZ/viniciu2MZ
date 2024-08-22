@@ -6,6 +6,7 @@ sunlight or sun is amazing
 **discord gatos140
 ![](https://media.tenor.com/QTbcrC893SIAAAAi/solaire.gif)
 ![](https://media1.tenor.com/m/upn0AOBb5RsAAAAC/artorias-dark-souls.gif)
+![](https://media1.tenor.com/m/ZMQeC9TLZikAAAAC/souls.gif)
 <!--
 **viniciu2MZ/viniciu2MZ** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
